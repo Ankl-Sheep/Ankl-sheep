@@ -18,6 +18,8 @@ if try to or are forcing religious beliefs on others
 
 lowk deadass if you like or support Tcoaal, ur disgusting and should stay FAR away from me, i will block and hide u permanently. if u think i'll ever unblock you i will be adding a "do not unblock" note on your pony.
 
+anything else thats normally on a dni list is something u should already know so i dont have to write so much
+
 ![_1eySK](https://github.com/user-attachments/assets/eb021328-b5f8-4091-9137-ebd23a523042)
 
 -- 2 HABITS im comfortable with sharing --
