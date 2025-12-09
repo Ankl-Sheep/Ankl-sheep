@@ -17,4 +17,11 @@ you support/are a M@p, Pr0sh1pp3r, D3rksh1pp3r, ANY of that stuff, its disgustin
 if try to or are forcing religious beliefs on others
 
 lowk deadass if you like or support Tcoaal, ur disgusting and should stay FAR away from me, i will block and hide u permanently. if u think i'll ever unblock you i will be adding a "do not unblock" note on your pony.
-![subspace-phighting](https://github.com/user-attachments/assets/0f75cc46-26b8-4f6c-a5f5-27b4aedf41c4)
+
+![_1eySK](https://github.com/user-attachments/assets/eb021328-b5f8-4091-9137-ebd23a523042)
+
+-- HABITS --
+i do have a habit of typing fast/quickly, sorry lol
+i have a VERY bad habit of cussing... no, i don't get kicked a lot, ik of what im saying and re-read before saying it! but its just normal for me because almost all my friends cuss, that includes irl friends and online friends.
+
+
