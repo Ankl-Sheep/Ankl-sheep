@@ -2,7 +2,7 @@ please read👋
 
 <<!-- I do not mind to interact with adults but i do perfer to stay within the minor age range, nothing against adults! just rather have and hangout with people around my age, so 18+ / adults you can interact with me, just i may not friend you or not friend you as easily as others, sorry.
 i enjoy drawing, sleeping, going on trips, matching pfps, playing games, etc!
-i have been called a damn childwife for letting some adult sit by me bc they ship their cosplay with mine, so i only want friends, irl friends or close friends of mine to cuddle me for ships now, sorry, but thats just to keep me safe from being called anything else disgusting.
+
 <img width="225" height="225" alt="images" src="https://github.com/user-attachments/assets/0883902d-48e8-41c7-b381-6a959b3e00a4" />
 
 -- DNI LIST --
@@ -20,8 +20,12 @@ lowk deadass if you like or support Tcoaal, ur disgusting and should stay FAR aw
 
 ![_1eySK](https://github.com/user-attachments/assets/eb021328-b5f8-4091-9137-ebd23a523042)
 
--- HABITS --
+-- 2 HABITS im comfortable with sharing --
 i do have a habit of typing fast/quickly, sorry lol
+
 i have a VERY bad habit of cussing... no, i don't get kicked a lot, ik of what im saying and re-read before saying it! but its just normal for me because almost all my friends cuss, that includes irl friends and online friends.
+
+anyway thank you for taking ur time and reading this </3
+![zeruuspecial-subspace](https://github.com/user-attachments/assets/7586677f-7f6f-4b1c-a19f-f0261b285778)
 
 
