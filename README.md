@@ -2,6 +2,9 @@
 
 <<!-- I do not mind to interact with adults but i do perfer to stay within the minor age range, nothing against adults! just rather have and hangout with people around my age, so 18+ / adults you can interact with me, just i may not friend you or not friend you as easily as others, sorry.
 i enjoy drawing, sleeping, going on trips, matching pfps, playing games, etc!
+
+<img width="225" height="225" alt="images" src="https://github.com/user-attachments/assets/0883902d-48e8-41c7-b381-6a959b3e00a4" />
+
 -- DNI LIST --
 if your going to be rude, immature, or toxic towards me or my friends, i rather just stay away from you and not interact with you at all.
 if ur homophobic, racist, or anything like that.
