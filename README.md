@@ -2,7 +2,7 @@ please read👋
 
 <<!-- I do not mind to interact with adults but i do perfer to stay within the minor age range, nothing against adults! just rather have and hangout with people around my age, so 18+ / adults you can interact with me, just i may not friend you or not friend you as easily as others, sorry.
 i enjoy drawing, sleeping, going on trips, matching pfps, playing games, etc!
-
+i have been called a damn childwife for letting some adult sit by me bc they ship their cosplay with mine, so i only want friends, irl friends or close friends of mine to cuddle me for ships now, sorry, but thats just to keep me safe from being called anything else disgusting.
 <img width="225" height="225" alt="images" src="https://github.com/user-attachments/assets/0883902d-48e8-41c7-b381-6a959b3e00a4" />
 
 -- DNI LIST --
