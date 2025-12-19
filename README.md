@@ -1,5 +1,7 @@
 please read👋
 
+forsaken, phighting, kaiju paradise, and countryhumans fan since day 1. - nothing can make me leave these fandoms, but there are stuff that make me hate it.
+
 <<!-- I do not mind to interact with adults but i do perfer to stay within the minor age range, nothing against adults! just rather have and hangout with people around my age, so 18+ / adults you can interact with me, just i may not friend you or not friend you as easily as others, sorry.
 i enjoy drawing, sleeping, going on trips, matching pfps, playing games, etc!
 
@@ -16,7 +18,7 @@ you support/are a M@p, Pr0sh1pp3r, D3rksh1pp3r, ANY of that stuff, its disgustin
 
 if try to or are forcing religious beliefs on others
 
-lowk deadass if you like or support Tcoaal, ur disgusting and should stay FAR away from me, i will block and hide u permanently. if u think i'll ever unblock you i will be adding a "do not unblock" note on your pony.
+lowk deadass if you like, support, and or cosplay Tcoaal, ur disgusting and should stay FAR away from me, i will block and hide u permanently. if u think i'll ever unblock you i will be adding a "do not unblock" note on your pony.
 
 anything else thats normally on a dni list is something u should already know so i dont have to write so much
 
