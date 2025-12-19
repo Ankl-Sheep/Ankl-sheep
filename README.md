@@ -10,7 +10,7 @@ if your going to be rude, immature, or toxic towards me or my friends, i rather 
 
 if ur homophobic, racist, or anything like that.
 
-DO NOT try and flirt with me if ur a complete stranger to me and do not have any sort of bond with me, i have my boundaries for that.
+DO NOT try and flirt with me if ur a complete stranger to me and do not have any sort of bond with me, i have my boundaries for that. Reason i put this is because in the past i've had a 17 year old try to get with me.
 
 you support/are a M@p, Pr0sh1pp3r, D3rksh1pp3r, ANY of that stuff, its disgusting and along with u so called "trollers" trolling as that isn't FUNNY or cool, it just makes you problematic and stright up WEIRD.
 
